@@ -62,7 +62,7 @@ Example:
 
 **Kanuganti Aakash**  
 GitHub: [https://github.com/akashh_21](https://github.com/akashh_21)  
-Email: your.kangantiakash@gmail.com  
+Email: kangantiakash@gmail.com  
 
 ---
 
